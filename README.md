@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Jammedat
+- 👋 Hi, I’m Tekendra Khadka
 - 👀 I’m interested in graphics and web design 
 - 🌱 I’m currently learning figma
 - 💞️ I’m looking to collaborate on advance projects related to web design 
