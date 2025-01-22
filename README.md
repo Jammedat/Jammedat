@@ -1,5 +1,5 @@
 # 💫 About Me:
-👋 Hi, I’m Tekendra Khadka<br>👀 I’m interested in  and web design<br>💞️ I’m looking to collaborate on advance projects related to web design<br>📫 How to reach me ---> susilkhadka503@gmail.com
+👋 Hi, I’m Tekendra Khadka<br>👀 I’m interested in web design<br>💞️ I’m looking to collaborate on advance projects related to web design<br>📫 How to reach me ---> susilkhadka503@gmail.com
 
 
 ## 🌐 Socials:
